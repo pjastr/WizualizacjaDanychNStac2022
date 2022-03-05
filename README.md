@@ -1,0 +1,1 @@
+# WizualizacjaDanychNStac2022
